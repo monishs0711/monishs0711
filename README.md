@@ -3,7 +3,7 @@
 
 - 💞️ I would love to learn and explore Processor architectures and hopefully contribute to HPC someday.
 
-- 📫 How to reach me-> Mail:**work.monishs0711@gmail.com** or reach out on [LinkedIn](https://www.linkedin.com/in/monish-subramani-28ba27250/)
+- 📫 How to reach me-> Mail at: **work.monishs0711@gmail.com** or reach out on [LinkedIn](https://www.linkedin.com/in/monish-subramani-28ba27250/)
 
 - 😄 Pronouns: ha/ha
 
